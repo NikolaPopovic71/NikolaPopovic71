@@ -63,7 +63,7 @@ Our diverse team is equipped with a unique blend of analytical skills and creati
 
 <br>
 
-  [![visit](https://github.com/user-attachments/assets/08265279-08c1-43b4-a4a4-c00193f7fded)](https://www.ponitech.pro/)
+  [![visit](https://github.com/user-attachments/assets/80e27b49-8e5b-4e48-8f20-768c88305c0c)](https://www.ponitech.pro/)
   [![visit](https://github.com/user-attachments/assets/a7be02ac-eeff-4ade-abc1-3f5f7d338bf3)](https://x.com/NikolaP_itech)
   [![visit](https://github.com/user-attachments/assets/40b10ad2-f51f-460b-b9d9-84ac6fab1065)](https://www.instagram.com/nikolap.itech/)
   [![visit](https://github.com/user-attachments/assets/f037a918-b61c-470d-9ff4-cecb12234cd0)](https://www.youtube.com/@ponITech-71)
